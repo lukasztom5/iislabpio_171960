@@ -1,1 +1,0 @@
-171960 systemy sieciowe wtorek x2
